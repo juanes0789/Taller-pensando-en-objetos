@@ -1,1 +1,1 @@
-Integrantes Juan Esteban MOsquera y Jose Quiñonez Hernandez
+Integrantes Juan Esteban Mosquera y Jose Quiñonez Hernandez
